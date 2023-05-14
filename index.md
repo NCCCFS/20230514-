@@ -1,1 +1,38 @@
+# 2023年5月14日主日信息
+# 主题：信靠等候神的时间
+# 经文：撒母耳记上13章
+# 讲员：侯弟兄
+<audio controls src="./信靠等候神的时间.mp3"></audio>
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/93a88cac-ebfb-4cfb-85a0-fcbbc6e70517)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/a182b3bf-e51a-4759-87c4-badaae9e8ef7)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/f5e846ef-618d-4503-98fe-86360817c770)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/f457ece0-ae73-4d93-9fa7-07b2b33c0c07)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/bdc3e433-d9b6-45a8-9eb6-52fb34ea2681)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/b88f1f2e-44d3-4728-8f6d-25edc74a39b7)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/79561662-fab3-46aa-8a53-734d21d9aaa1)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/febe25aa-9848-42c8-badd-9f5b0ba63ce6)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/1d0df533-53df-4048-93a9-1bcea7032eeb)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/d1a2f469-54d0-47cb-996d-0f288e7c0782)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/a2944c0a-e08f-4c7b-8f06-f449fd894a69)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/27c80c9c-7f27-4666-b8f9-bf3e6bc31646)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/52140242-16c7-47c4-ac93-66820d1764e5)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/fadf9584-34e4-4665-a19d-0166a1e9fcbe)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/05476209-48f8-4295-9cf3-3ed72be1b7c3)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/2e084b8d-55a9-466b-be51-9938d0ee175c)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/9b67ba64-4321-4404-94af-9fc750586705)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/8357c5cd-5f63-4aa2-bcb0-b234d67fd66a)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/70897076-9a28-4cde-8df7-07180983f132)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/6a370f97-3a1b-4988-b834-d2b48ce58c9a)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/3476c40f-82d2-4d65-b44b-2df280fab29b)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/748e2a6b-1753-4bf6-bce7-e7faa292452e)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/310420b4-de7e-4300-8338-77cebcc0fbfc)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/57ff193a-2620-4eac-82ed-6358942ca282)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/087ccfbf-ffe5-4b94-9e26-2567bb32863e)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/302074fc-6a13-4dcf-86f7-c19c61d87f68)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/3cefbab0-b43f-4314-bb86-546c194e0d54)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/8d1fa4c6-e290-41aa-a1c5-864141630b3a)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/fa05bf97-e615-4849-9535-9a8c3a3aa6d4)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/b599cb92-aa00-4f4f-83af-20c7d48cb2a2)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/2247c0b9-1803-4e69-8af7-f2c7242ab6aa)
+![image](https://github.com/NCCCFS/20230514-/assets/91267933/135e68b3-5481-447d-b5c6-1d60448744fb)
 
